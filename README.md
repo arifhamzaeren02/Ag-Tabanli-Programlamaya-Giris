@@ -1,1 +1,1 @@
-# A-Tabanl-Programlamaya-Giri-Asia-Minor-Grubu-Sitesi-
+# Ag Tabanli Programlamaya Giris
